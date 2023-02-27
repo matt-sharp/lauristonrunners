@@ -12,6 +12,6 @@ New members are very welcome. Members can bring guests who are expected to apply
 
 The club hosts an annual garden party on the first Saturday in June for members and their guests.
 
-[Download rules](/docs/Lauriston Rules - Sep2022.pdf)
+[Download rules](/docs/rules_sep22.pdf)
 
 The Club has a close link with Hercules Wimbledon Athletic Club; Lauriston Cottage is HW’s headquarters for Cross Country and Road Running.
